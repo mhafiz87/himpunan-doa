@@ -7,7 +7,7 @@ Ya Allah, pada hari yang berkat ini, kami berhimpun di majlis ini sebagai tanda 
 
 Kami memohon rahmat-Mu agar dikurniakan keampunan, keberkatan dan sihat wal-afiat kepada seisi keluarga, tuan rumah dan sekalian yang hadir bagi meraikan majlis yang diberkati ini.
 
-Bersempena dengan majlis ini juga kami memohon rahmat-Mu ya Allah, kurniakanlah kepada kedua mempelai yang diraikan ini kehidupan yang sihat dan selamat sejahtera serta dikurniakan zuriat yang soleh.
+Bersempena dengan majlis ini juga kami memohon rahmat-Mu ya Allah, kurniakanlah kepada kedua mempelai yang diraikan ini kehidupan yang sihat dan selamat sejahtera serta dikurniakan zuriat yang soleh dan solehah.
 
 Perkukuhkanlah ikatan kasih sayang dan hormat menghormati antara mereka, berakhlak mulia dan berbudi bahasa, serta beriman dan bertakwa kepada-Mu ya Allah.
 
@@ -33,6 +33,9 @@ Semoga perkahwinan yang dibina kekal sepanjang hayat dan diberkati Allah.
 
 
 لَا إِلَٰهَ إِلَّا أَنْتَ سُبْحَانَكَ إِنِّي كُنْتُ مِنَ الظَّالِمِينَ
+
+
+اللَّهُمَّ بَارِكْ لَنَا فِيمَا رَزَقْتَنَا، وَقِنَا عَذَابَ النَّارِ
 
 
 وَصَلَّى اللهُ عَلَى سَيِّدِنَا مُحَمَّدٍ وَعَلَى آلِهِ وَصَحْبِهِ أَجْمَعِيْنَ
