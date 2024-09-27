@@ -1,6 +1,8 @@
 
 ![selawat-1](assets/selawat-1.webp)
 
+اَللَّهُمَّ صَلِّ وَسَلِّمْ وَبَارِكَ عَلَى مُحَمَّدٍ وَعَلَى آلِهِ وَصَحْبِهِ وَسَلِّمْ
+
 Ya Allah, pada hari yang berkat ini, kami berhimpun di majlis ini sebagai tanda kesyukuran kami atas nikmat-Mu bersempena dengan majlis perkahwinan yang diadakan ini.
 
 Kami memohon rahmat-Mu agar dikurniakan keampunan, keberkatan dan sihat wal-afiat kepada seisi keluarga, tuan rumah dan sekalian yang hadir bagi meraikan majlis yang diberkati ini.
@@ -32,3 +34,8 @@ Semoga perkahwinan yang dibina kekal sepanjang hayat dan diberkati Allah.
 
 لَا إِلَٰهَ إِلَّا أَنْتَ سُبْحَانَكَ إِنِّي كُنْتُ مِنَ الظَّالِمِينَ
 
+
+وَصَلَّى اللهُ عَلَى سَيِّدِنَا مُحَمَّدٍ وَعَلَى آلِهِ وَصَحْبِهِ أَجْمَعِيْنَ
+
+
+وَالْحَمْدُ لِلَّهِ رَبِّ الْعَالَمِيْنَ
